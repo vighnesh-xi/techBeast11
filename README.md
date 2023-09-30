@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @techBeast11
-- 📫 How to reach me ...You can message me on instagram @_.vighnexh._ or you can simply connect me on LinkedIn : www.linkedin.com/in/vighnesh-000504250
+- 📫 How to reach me ...You can message me on instagram @vighnesh.xi or you can simply connect me on LinkedIn : www.linkedin.com/in/vighnesh-000504250
 
 
 <!---
